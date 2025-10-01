@@ -24,7 +24,9 @@ O foco é em **IA generativa** e suas aplicações práticas, sempre explicado d
 ---
 
 ## 🎧 Onde ouvir  
-*(em breve links para Spotify, Deezer e Apple Podcasts)*  
+## 🎧 Ouça no Spotify
+[Cérebro Fora da Caixa no Spotify](https://open.spotify.com/show/5thoplIK9ztKSOwF4esrtT?si=Hjc06FdrQUWtegIj1rwj8g)
+ 
 
 ---
 
